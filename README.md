@@ -1,6 +1,6 @@
 ## Privacy Policy for ONG
 
-Company: Nora Studios Inc
+Company: Some Labs Inc
 
 This Privacy Policy describes our policies and procedures on the collection, use, and disclosure of your information when you use the Service and tells you about your privacy rights and how the law protects you.
 
